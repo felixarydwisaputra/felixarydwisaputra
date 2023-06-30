@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hallo.... 👋 <br>Coding dulu baru kamu
+Hallo.... 👋 
 
 
 ## 🌐 Socials:
